@@ -35,9 +35,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Deliuerance from the graue A sermon preached at Saint Maries Spittle in London, on Wednesday in East
+
+1. To the READER.
+
+1. To the READER.
+
 #####Body#####
-Deliuerance from the graue A sermon preached at Saint Maries Spittle in London, on Wednesday in East
+
+1. DELIVERANCE FROM THE GRAVE.
+
 **Types of content**
 
   * There are 3 **verse** lines!
